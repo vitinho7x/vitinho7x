@@ -12,4 +12,5 @@ Meu nome é vitinho7x
 
 @vrzin_014
 
-![descrição do GIF](link GIF do Tenor)
+![download](https://github.com/user-attachments/assets/69055e78-5a93-4d25-b80d-e267a42424b0)
+
